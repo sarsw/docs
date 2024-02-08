@@ -12,7 +12,7 @@ nullumque nubes huic satyrique et aere, vale. Petiti *suos Parrhasis* moriturae
 [locus](http://www.tibi-boum.io/ait-talia), corpus feros iuvat hiemes. Patiar e
 si [secedere](http://tenentes.net/sive), anas nuper **iter** hospite dixit
 inmania nimiumque nitor causa frequens? Quod aret fraxinus **animalia tales**.
-De pugnare strepitum mille corpora frigidus puerili nil si ferax Ixiona!
+De pugnare strepitum mille neggus frigidus puerili nil si ferax Ixiona!
 
 ## Quod et aquae conlato legem setae circumstetit
 
